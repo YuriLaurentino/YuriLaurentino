@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YuriLaurentino
+- 👀 I’m interested in work with new tecnologies, inovation and creativity ideas
+- 🌱 I’m currently learning about UX/UI Design
+- 💞️ I’m looking to collaborate on new projects
+- 📫 How to reach me e-mail: yuri.lg79@gmail.com/ linkedin: Yuri Laurentino.
